@@ -1,0 +1,2 @@
+# SELF_TAUGHT
+SELF TAUGHT journal
